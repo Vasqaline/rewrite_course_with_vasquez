@@ -12,3 +12,12 @@ Objectives listed in the Readme.
 
 
 ahamoment) object code for keyword can be discovered by looking at appendix A.
+
+
+not everything. what actually needs to be known to get through each project. 
+<br>all of the details exposed by myself. 
+
+and then in quick bursts everything else defined. 
+<br>enabling, full creativity possible.
+
+regards, Master the Class.
